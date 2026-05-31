@@ -1,16 +1,15 @@
-## Hi there 👋
+--------------
 
-<!--
-**feralmutts/feralmutts** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+niki/nik
 
-Here are some ideas to get you started:
+she/they/pup/pupself.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+that one internet puppy🐾
+
+yes, i actually identify as a dog. yes, i sleep in a dog kennel. yes, this is a kink
+
+usually blasting shit music or drawing★
+
+no, i dont have any socials-so stop fucking asking me for my discord😭
+
+feel free to c+h if im on ponytown, no need to ask lol
