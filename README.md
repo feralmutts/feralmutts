@@ -1,8 +1,8 @@
 --------------
 
-niki/nik
+wilbur/wil
 
-she/they/pup/pupself.
+he/they/pup/pupself.
 
 that one internet puppy🐾
 
