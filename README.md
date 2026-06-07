@@ -1,8 +1,8 @@
 --------------
 
-wilbur/wil
+call me salem<3
 
-he/they/pup/pupself.
+she/they/pup/pupself.
 
 that one internet puppy🐾
 
