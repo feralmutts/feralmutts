@@ -8,9 +8,13 @@ that one internet puppy🐾
 
 ill most likely end up making a patreon for free skins so look out for that<3
 
+i fucking love being called stuff you would normally call a dog୨୧ (good girl, puppy, ect)
+
 yes, i actually identify as a dog. yes, i sleep in a dog kennel. yes, this is a kink
 
 usually blasting shit music or drawing★
+
+lowkey kinky asffff :3
 
 no, i dont have any socials-so stop fucking asking me for my discord😭
 
