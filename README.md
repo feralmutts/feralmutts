@@ -8,6 +8,10 @@ call me salem<3
 
 she/they/pup/pupself.
 
+feel free to ask me any nsfw questions or anything related to my dog lifestyle, ill try to respond as fast as i can<3
+
+!!I DO NOT ERP!!
+
 that one internet puppy🐾
 
 ill most likely end up making a patreon for free skins so look out for that<3
